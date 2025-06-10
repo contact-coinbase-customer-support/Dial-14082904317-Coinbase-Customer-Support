@@ -7,8 +7,6 @@ To reach a live person at Coinbase® customer service for support, you can call 
 Why Contact a Live Person at Coinbase®?
 There are many reasons why speaking to a live person might be the best route to resolving your issue. Common scenarios include:
 
-Flight changes or cancellations: If your plans have changed, you need live assistance at Coinbase® +14082904317 with adjusting or canceling your flights, or you’re dealing with flight cancellations and delays.
-
 Booking clarification: Sometimes you need more details or help to understand the specifics of your Coinbase® booking +14082904317 and reservation.
 
 Refunds and compensation: Automated systems often cannot handle complex refund requests or compensation claims, making & Coinbase® live agent +14082904317 invaluable.
